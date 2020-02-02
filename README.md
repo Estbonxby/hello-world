@@ -1,2 +1,4 @@
 # hello-world
-Just open my travel
+Hi bro
+u know I am a newbee
+so let's fight for the future
